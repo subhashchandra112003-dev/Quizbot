@@ -17,7 +17,7 @@
 
 ---
 
-### 🤖 Try the Live Bot → [@advance_quiz_bot](https://t.me/advance_quiz_bot)
+### 🤖 Try the Live Bot → [@Queen_Of_Noor_bot](https://t.me/Queen_Of_Noor_bot)
 
 </div>
 
